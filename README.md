@@ -11,6 +11,13 @@
 - 📌 Fast transfer
 - 📌 Fetching members
 - 📌 No proxy
+- 📌 High speed
+- 📌 unlimited
+- 📌 Continuous updates
+- 📌 No need for a proxy
+- 📌 Optimal coding
+- 📌 Bug fixes
+- 📌 And ...
 - 📌 Visit the site to buy
 
 ### Applicable on:
@@ -40,7 +47,7 @@
 
 ##### See Training 
 
-- 🔞 See Training 🎥 https://youtu.be/yGlkzXxvdkE 🎥
+- 🔞 See Training 🎥 https://youtu.be/HgE-1AHXja8 🎥
 
 ----------------------
 
